@@ -17,6 +17,7 @@
 - [理想伴侣](https://github.com/violettianjie/ForFamily/blob/master/idealmate.md)
 
 
+
 关于养育：
 
 - [无条件养育](https://github.com/violettianjie/ForFamily/blob/master/HbBreeding.md)
@@ -27,6 +28,8 @@
 - [简单生活行动清单]()
 - ……
 
+关于工作：
+- [理想工作](https://github.com/violettianjie/ForFamily/blob/master/IdealWork.md)
 
 ## How to contribute ？
 
@@ -44,5 +47,5 @@
 
 - 171227 田捷创建
 
-- 171228 田捷增补理想伴侣
+- 171228 田捷增补理想伴侣、理想工作
 
