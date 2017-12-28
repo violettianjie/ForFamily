@@ -4,10 +4,10 @@
     see my faults and help me to work on them .
     
 2、鞭策我成为一个更好的人
-    challenge me to become a better person
+    challenge me to become a better person.
     
 3、鼓励我学习新事物。
-    encourage me to learn new things。
+    encourage me to learn new things.
     
 ### 我如何做你的理想伴侣
 
