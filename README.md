@@ -12,6 +12,10 @@
 
 关于我：violettianjie.com 
 
+关于理想伴侣：
+
+- [理想伴侣](https://github.com/violettianjie/ForFamily/blob/master/idealmate.md)
+
 
 关于养育：
 
@@ -39,4 +43,6 @@
 ## Changelog 
 
 - 171227 田捷创建
+
+- 171228 田捷增补理想伴侣
 
