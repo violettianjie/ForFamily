@@ -3,7 +3,7 @@
 1、 看见我的缺点，并帮我克服它们。
     see my faults and help me to work on them .
     
-2、鞭策我成为一个更好的人
+2、鞭策我成为一个更好的人。
     challenge me to become a better person.
     
 3、鼓励我学习新事物。
