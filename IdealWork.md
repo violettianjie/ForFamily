@@ -10,7 +10,7 @@ Now
 
 - 1、 [认知写作学五期教练](https://github.com/violettianjie/violetpalace/blob/master/recallWriter005.md)。2017.9-2018.1.11  
 
-  - 目标： 缪斯神殿的maker（创造者心态）
+      - 目标： 缪斯神殿的maker（创造者心态）
 
 - 2、 深圳少儿观息课程筹委-财务。 法工工作坊。
 
