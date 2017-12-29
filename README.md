@@ -41,6 +41,14 @@
 如果你对生活的念想类似，欢迎来信 violettianjie@qq#com 。说不准能一起养娃，啊哈哈 ：-)
 
 
+## 价值观
+（暂时这样列）
+Love Peace Health Creativity Family
+Trust Happiness Knowledge  Spirituality Beauty Wealth Success Safety Time
+Community Influence
+Equality   
+Freedom  Order  Respect
+Diversity Empowerment Security Stability  Reputation
 
 
 ## Changelog 
