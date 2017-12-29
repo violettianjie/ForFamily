@@ -25,3 +25,8 @@ It is not the perfect，but the imperfect， who have need of love. It is when w
 
 Women are not meant to judge men，but to forgive them when they need forgiveness.
  
+### 我对关系的理解
+
+1、双方需要**努力**才能进行正确的沟通，需要努力才能发现并理解双方不同的期望和想法。
+
+2、世界上没有不存在问题的候选人，诀窍是了解对方的底线在哪里，然后从这点开始逐步培养两人的关系。
