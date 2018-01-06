@@ -41,14 +41,24 @@
 如果你对生活的念想类似，欢迎来信 violettianjie@qq#com 。说不准能一起养娃，啊哈哈 ：-)
 
 
-## 价值观
-（暂时这样列）
-Love Peace Health Creativity Family
-Trust Happiness Knowledge  Spirituality Beauty Wealth Success Safety Time
-Community Influence
-Equality   
-Freedom  Order  Respect
-Diversity Empowerment Security Stability  Reputation
+## 我的价值观（优势／美德）
+
+Honesty, authenticity, and genuineness 
+正直、可靠、真实
+
+
+Spirituality, sense of purpose, and faith 
+灵性、目的感和信念
+
+Gratitude 
+感恩
+
+Love of learning 
+热爱学习
+
+
+Capacity to love and be loved 
+爱和被爱的能力
 
 
 ## Changelog 
