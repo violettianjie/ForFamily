@@ -11,7 +11,29 @@ Now
 
 - 1、 [认知写作学五期教练](https://github.com/violettianjie/violetpalace/blob/master/recallWriter005.md)。2017.9-2018.1.7 
 
-      - 目标： 缪斯神殿的maker（创造者心态）
+      - 目标： 缪斯神殿的maker（创造者心态）
+### 需求
+
+可以每天应用到我的优势
+
+Honesty, authenticity, and genuineness 
+正直、可靠、真实
+
+
+Spirituality, sense of purpose, and faith 
+灵性、目的感和信念
+
+Gratitude 
+感恩
+
+Love of learning 
+热爱学习
+
+
+Capacity to love and be loved 
+爱和被爱的能力
+
+
 
 ### 底线
 
