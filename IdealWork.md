@@ -7,11 +7,8 @@
 - 3、输出> 输入
 - 4、最小行动，长期坚持。 最小成本> 空间> 时间。
 
-Now
 
-- 1、 [认知写作学五期教练](https://github.com/violettianjie/violetpalace/blob/master/recallWriter005.md)。2017.9-2018.1.7 
 
-      - 目标： 缪斯神殿的maker（创造者心态）
 ### 需求
 
 可以每天应用到我的优势
