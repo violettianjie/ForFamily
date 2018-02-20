@@ -41,6 +41,19 @@ Love of learning
 Capacity to love and be loved 
 爱和被爱的能力
 
+可以应用到我的技能
+
+English
+英语
+
+Marketing
+营销
+
+Writing
+写作
+
+Presentation
+宣讲&培训
 
 
 ### 底线
