@@ -37,7 +37,7 @@ Women are not meant to judge men，but to forgive them when they need forgivenes
 
 必须有
 
-- 你爱我，我爱你
+- 你爱我（对我好，对我父母好，欣赏我），我爱你
 
 - 共同价值观。慈悲、诚信、宽容、上进、孝顺
 
