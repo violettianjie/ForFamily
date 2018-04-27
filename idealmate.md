@@ -45,7 +45,7 @@ Women are not meant to judge men，but to forgive them when they need forgivenes
 
 有了更好
 
-- 外表让我喜欢
+
 
 - 内观同修
 
@@ -53,7 +53,7 @@ Women are not meant to judge men，but to forgive them when they need forgivenes
 
 - 动手能力强
 
-- < 73年 
+
 
 绝不考虑
 
