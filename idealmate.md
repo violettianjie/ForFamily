@@ -1,29 +1,6 @@
-### 你如何做我的理想伴侣
+## 愿得一心人，白首不相离
 
-1、 看见我的缺点，并帮我克服它们。
-    see my faults and help me to work on them .
-    
-2、鞭策我成为一个更好的人。
-    challenge me to become a better person.
-    
-3、鼓励我学习新事物。
-    encourage me to learn new things.
-    
-### 我如何做你的理想伴侣
 
-1、 你喜欢成为什么随你去好了。我想要的只是.......成为......嗯，成为你名副其实的妻子。
-    You can be what you chooses. All I want is to be... to be ...oh！ a real wife to you.
-    
-### 我认同的对爱的理解
-
-1、 需要爱的不是完美无缺的人，而是有这样那样毛病的人。当我们被我们自己的手或别人的手所伤害时，爱应该来治我们的伤口——否则爱还有什么用途？真正的爱应该宽恕。
-
-It is not the perfect，but the imperfect， who have need of love. It is when we are wounded by our own hands,or
- by the hands of others,that love should come to cure us -- else what use is love at all?Love should forgive ,love should pardon.
- 
-2、 女性不是用来评判男性的，而是在他们需要原谅时原谅他们的。
-
-Women are not meant to judge men，but to forgive them when they need forgiveness.
  
 ### 我对关系的理解
 
@@ -33,26 +10,7 @@ Women are not meant to judge men，but to forgive them when they need forgivenes
 
 ### 希望你是
 
-一个智慧、道德、勇敢、自律、坚持的男人
-
-必须有
-
-- 你爱我（对我好，对我父母好，欣赏我），我爱你
-
-- 共同价值观。慈悲、诚信、宽容、上进、孝顺
-
-- 彼此认同梦想和生活方式
-
-有了更好
-
-
-
-- 内观同修
-
-- 财务自由
-
-- 动手能力强
-
+一个包容的男人，热爱精神追求也热爱物质追求
 
 
 绝不考虑
