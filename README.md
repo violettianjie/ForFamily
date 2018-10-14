@@ -18,18 +18,18 @@
 
 
 
-关于养育：
-
-- [无条件养育](https://github.com/violettianjie/ForFamily/blob/master/HbBreeding.md)
-
-
 关于生活方式：
 
 - [简单生活行动清单]()
 - ……
 
 关于工作：
-- [理想工作](https://github.com/violettianjie/ForFamily/blob/master/IdealWork.md)
+- [认真工作](https://github.com/violettianjie/ForFamily/blob/master/IdealWork.md)
+
+
+关于养育：
+
+- [无条件养育](https://github.com/violettianjie/ForFamily/blob/master/HbBreeding.md)
 
 ## How to contribute ？
 
