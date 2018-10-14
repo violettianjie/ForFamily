@@ -20,7 +20,7 @@
 
 关于生活方式：
 
-- [简单生活行动清单]()
+- [简单生活行动清单](https://github.com/violettianjie/ForFamily/blob/master/HbSimpleLife.md)
 - ……
 
 关于工作：
