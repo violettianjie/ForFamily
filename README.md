@@ -25,7 +25,8 @@
 关于生活方式：
 
 - [简单生活行动清单](https://github.com/violettianjie/ForFamily/blob/master/HbSimpleLife.md)
-- ……
+- [生活原则](https://github.com/violettianjie/ForFamily/blob/master/tjPrinciple.md)
+……
 
 关于工作：
 - [认真工作](https://github.com/violettianjie/ForFamily/blob/master/IdealWork.md)
