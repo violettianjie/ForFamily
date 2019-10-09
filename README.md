@@ -12,6 +12,10 @@
 
 关于我：violettianjie.com 
 
+关于不断修炼的理想的自己：
+
+- [理想自己](https://github.com/violettianjie/ForFamily/blob/master/idealMe.md)
+
 关于理想伴侣：
 
 - [理想伴侣](https://github.com/violettianjie/ForFamily/blob/master/idealmate.md)
