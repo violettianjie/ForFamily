@@ -47,15 +47,14 @@ Capacity to love and be loved
 English
 英语
 
-Marketing
-营销
-
 Writing
 写作
 
 Presentation
 宣讲&培训
 
+Marketing
+营销
 
 
 
