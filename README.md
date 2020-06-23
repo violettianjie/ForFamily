@@ -12,6 +12,8 @@
 
 关于我：violettianjie.com 
 
+- [生活原则](https://github.com/violettianjie/ForFamily/blob/master/tjPrinciple.md)
+
 关于不断修炼的理想的自己：
 
 - [理想自己](https://github.com/violettianjie/ForFamily/blob/master/idealMe.md)
