@@ -31,7 +31,7 @@
 ……
 
 关于工作：
-- [认真工作](https://github.com/violettianjie/ForFamily/blob/master/IdealWork.md)
+- [工作即生活](https://github.com/violettianjie/ForFamily/blob/master/IdealWork.md)
 
 
 关于养育：
@@ -77,4 +77,6 @@ Capacity to love and be loved
 - 180106 田捷补充测试的优势和美德
 
 - 181014 田捷修订理想工作为认真工作，增加简单生活清单的内容
+
+- 210721 田捷修订，微调工作即生活
 
